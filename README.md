@@ -17,3 +17,4 @@
 [2024년 03월 29일](https://www.notion.so/2024-3-29-f828de6bc9b443728158779e97276856)|[2024년 04월 10일](https://www.notion.so/2024-4-10-b7f28fda58f14132b412832aa44a331c)|
 [2024년 03월 30일](https://www.notion.so/2024-3-30-ce6b2da613634214bd3139b81113503f)|[2024년 04월 11일](https://www.notion.so/2024-4-11-f6383ba629a547a6b256804fa3cc70df)|
 | |[2024년 04월 13일](https://www.notion.so/2024-4-13-c0d68309d14c439faedd9071b113d7dd)|
+| |[2024년 04월 14일](https://www.notion.so/2024-4-14-b46de93bfa774858a0873fd336dcaec5)|
