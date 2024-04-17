@@ -18,3 +18,6 @@
 [2024년 03월 30일](https://www.notion.so/2024-3-30-ce6b2da613634214bd3139b81113503f)|[2024년 04월 11일](https://www.notion.so/2024-4-11-f6383ba629a547a6b256804fa3cc70df)|
 | |[2024년 04월 13일](https://www.notion.so/2024-4-13-c0d68309d14c439faedd9071b113d7dd)|
 | |[2024년 04월 14일](https://www.notion.so/2024-4-14-b46de93bfa774858a0873fd336dcaec5)|
+| |[2024년 04월 15일](https://deff-dev.tistory.com/84)|
+| |[2024년 04월 16일](https://deff-dev.tistory.com/85)|
+| |[2024년 04월 17일](https://deff-dev.tistory.com/86)|
