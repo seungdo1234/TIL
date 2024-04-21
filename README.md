@@ -23,3 +23,4 @@
 | |[2024년 04월 17일](https://deff-dev.tistory.com/86)|
 | |[2024년 04월 18일](https://deff-dev.tistory.com/87)|
 | |[2024년 04월 19일](https://deff-dev.tistory.com/88)|
+| |[2024년 04월 21일](https://www.notion.so/24-04-21-fff8c010e093441e86cccb9957995265)|
